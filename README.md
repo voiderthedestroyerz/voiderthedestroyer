@@ -65,4 +65,8 @@ Note:don t mistake that i own the teams or anything,I will specify which I own
 
 ### Q:What teams do you own?
 
-A:My team that I own is Da Exploiterz,my only team
+A:My team that I own is Da Exploiterz,my only team that I own
+
+### Q:Are you afraid you can lose your youtube account?
+
+A:Yes,that s why if I won t post for a long time i have put my e-mail to contact me
