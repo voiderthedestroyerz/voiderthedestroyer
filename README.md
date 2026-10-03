@@ -37,3 +37,30 @@ A:No,they re clientsided.I only choose the titles for "hype"
 Q:Did you change since 2025?
 
 A:Yes,alot
+
+Q:What are your accounts/socials?
+
+A:my accs/socials are:
+
+Youtube:@voiderthedestroyer,@32enz,@35enz.
+
+Tiktok:@voiderthedestroyer (i don t stay on it alot)
+
+V3rmillion:@voiderthedestroyer
+
+Discord:@voiderthedestroyer
+
+Github:@voiderthedestroyer
+
+Q:What are ur teams?
+A:My teams are:
+
+Note:don t mistake that i own the teams or anything,I will specify which I own
+
+Team c00lkidd
+
+Da Exploiterz
+
+Q:What teams do you own?
+
+A:My team that I own is Da Exploiterz,my only team
