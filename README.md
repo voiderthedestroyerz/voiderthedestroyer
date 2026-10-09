@@ -70,3 +70,6 @@ A:My team that I own is Da Exploiterz,my only team that I own
 ### Q:Are you afraid you can lose your youtube account?
 
 A:Yes,that s why if I won t post for a long time i have put my e-mail to contact me
+
+### Q:What are ur alias?
+A:VOIDERTHEDESTROYER(VTD),00xdl0,35/32enz,hyperionbypass/HyperionBypass
