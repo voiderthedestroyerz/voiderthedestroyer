@@ -73,3 +73,6 @@ A:Yes,that s why if I won t post for a long time i have put my e-mail to contact
 
 ### Q:What are ur alias?
 A:VOIDERTHEDESTROYER(VTD),00xdl0,35/32enz,hyperionbypass/HyperionBypass,v01derz,voiderz
+
+### Q:Are there any official accounts for HyperionBypass?
+A:No,this month I mainly operated on v01derz_exiled acc,and there wont be any HyperionBypass accounts except the roblox one.Which when it's gonna be created,i'm gonna say here.
